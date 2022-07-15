@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+⚡ Fun fact:I really cut people off & act like I never knew them. lol
+
 <!--
 **Arm51z/Arm51z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
